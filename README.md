@@ -1,0 +1,2 @@
+# latihaniky
+oke
